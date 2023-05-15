@@ -3,12 +3,12 @@
 The Bhavana Editorial Team is happy to announce the sixth volume of the little magazine. It is available from here:
 https://drive.google.com/file/d/1jsFlOdW45ux1lYxf2_yU3HuSO_aWzhZJ/view?usp=sharing
 
-Some highlights of this issue are:
-a. <nav><a href="Cat_v1a.jpeg">Cat</a></nav> - a sketch contributed by Advik Mukherjee. 
-b. A Santhal <nav><a href="Bharatpur.jpeg">hunting scene</a></nav> from a panel in a patachitra painted by Basudev Chitrakar, Bharatpur, Bankura.
-c. <nav><a href="DurgaPainting.jpeg">Durga Slaying Asura</a></nav> - artwork contributed by Idhant Ghosh.
-d. <nav><a href="Caricature.jpeg">Self Caricature </a></nav>- contributed by Agneya Dutta Pooleery.
-e. <nav><a href="IMG_5411.JPG">Alpana design</a></nav> for collecting date palm jaggery - contributed by Haimonti Dutta.
+Some highlights of this issue are: <br>
+a. <nav><a href="Cat_v1a.jpeg">Cat</a></nav> - a sketch contributed by Advik Mukherjee. <br>
+b. A Santhal <nav><a href="Bharatpur.jpeg">hunting scene</a></nav> from a panel in a patachitra painted by Basudev Chitrakar, Bharatpur, Bankura. <br>
+c. <nav><a href="DurgaPainting.jpeg">Durga Slaying Asura</a></nav> - artwork contributed by Idhant Ghosh. <br>
+d. <nav><a href="Caricature.jpeg">Self Caricature </a></nav>- contributed by Agneya Dutta Pooleery. <br>
+e. <nav><a href="IMG_5411.JPG">Alpana design</a></nav> for collecting date palm jaggery - contributed by Haimonti Dutta. <br>
 
 This is the first time that we have several contributions posted online, in addition to our usual pdf format. We kindly request our readers to provide thir comments on this new format.
 
