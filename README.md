@@ -5,7 +5,7 @@ https://drive.google.com/file/d/1jsFlOdW45ux1lYxf2_yU3HuSO_aWzhZJ/view?usp=shari
 
 Some highlights of this issue are:
 
-a. <nav><a href="Cat_v1a.jpeg">Cat</a></nav> - a sketch contributed by Advik Mukherjee. 
+a.<nav><a href="Cat_v1a.jpeg">Cat</a></nav> - a sketch contributed by Advik Mukherjee. 
 
 This is the first time that we have several contributions posted online, in addition to our usual pdf format. We kindly request our readers to provide thir comments on this new format.
 
