@@ -10,11 +10,11 @@ Some highlights of this issue are: <br>
 4. <nav><a href="Caricature.jpeg">Self Caricature </a></nav>- contributed by Agneya Dutta Pooleery. <br>
 5. <nav><a href="IMG_5411.JPG">Alpana design</a></nav> for collecting date palm jaggery - contributed by Haimonti Dutta. <br>
 
-This is the first time that we have several contributions posted online, in addition to our usual pdf format. We kindly request our readers to provide thir comments on this new format.
+This is the first time that we have selected several contributions to be posted online, in addition to our usual pdf format. We kindly request our readers to provide their valuable feedback on this new format. 
 
 Please keep sharing your contributions with bhavanamag@gmail.com. 
 
-The next volume is scheduled for November, 2023. Keep an eye out for the call for contributions around early October. 
+The next volume is scheduled for November, 2023. Keep an eye out for the call for contributions around early October, 2023. 
 
 Thank you for all your hard work to make this little magazine a success!
 
