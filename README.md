@@ -8,7 +8,7 @@ Some highlights of this issue are: <br>
 2. A Santhal <nav><a href="Bharatpur.jpeg">hunting scene</a></nav> - from a panel in a patachitra painted by Basudev Chitrakar, Bharatpur, Bankura. <br>
 3. <nav><a href="DurgaPainting.jpeg">Durga Slaying Asura</a></nav> - artwork contributed by Idhant Ghosh. <br>
 4. <nav><a href="Caricature.jpeg">Self Caricature </a></nav>- contributed by Agneya Dutta Pooleery. <br>
-5. <nav><a href="IMG_5411.JPG">Alpana design</a></nav>for collecting date palm jaggery - contributed by Haimonti Dutta. <br>
+5. <nav><a href="IMG_5411.JPG">Alpana design </a></nav>for collecting date palm jaggery - contributed by Haimonti Dutta. <br>
 
 This is the first time that we have selected several contributions to be posted online, in addition to our usual pdf format. We kindly request our readers to provide their valuable feedback on this new format. 
 
