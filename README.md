@@ -3,7 +3,7 @@
 The Bhavana Editorial Team is happy to announce the sixth volume of the little magazine. It is available from here:
 https://drive.google.com/file/d/1jsFlOdW45ux1lYxf2_yU3HuSO_aWzhZJ/view?usp=sharing
 
-Some highlights of this issue are: 
+Some highlights of this issue are: <br>
 a. <nav><a href="Cat_v1a.jpeg">Cat</a></nav> - a sketch contributed by Advik Mukherjee. <br>
 b. A Santhal <nav><a href="Bharatpur.jpeg">hunting scene</a></nav> from a panel in a patachitra painted by Basudev Chitrakar, Bharatpur, Bankura. <br>
 c. <nav><a href="DurgaPainting.jpeg">Durga Slaying Asura</a></nav> - artwork contributed by Idhant Ghosh. <br>
